@@ -16,8 +16,13 @@ Source content from [Manhattan Digest](http://www.manhattandigest.com/) Photo by
 
 ## Urban Appreciation for Subways and Trains
 
-![Subway Signe](https://img.buzzfeed.com/buzzfeed-static/static/2016-02/5/15/campaign_images/webdr13/are-you-a-nyc-subway-expert-2-2072-1454704222-15_dblbig.jpg)
+![Subway Sign](https://img.buzzfeed.com/buzzfeed-static/static/2016-02/5/15/campaign_images/webdr13/are-you-a-nyc-subway-expert-2-2072-1454704222-15_dblbig.jpg)
+
 [Can You Give Good NYC Subway Directions?](https://www.buzzfeed.com/perpetua/nyc-subway-directions-quiz?utm_term=.nnrwl4jqD#.yhogXqVA9)
+
+Take this quiz.
+
+
 
 ## About Trains and Stuff
 
