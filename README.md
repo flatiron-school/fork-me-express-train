@@ -16,7 +16,7 @@ Source content from [Manhattan Digest](http://www.manhattandigest.com/) Photo by
 
 ## Urban Appreciation for Subways and Trains
 
-[BuzzFeed:18 Reasons Living In New York City Is A Goddamn Gift](https://www.buzzfeed.com/ariannarebolini/reasons-new-york-is-the-best-city-in-the-world?utm_term=.upb07aB5Z#.wrgJ8RqjL)
+![Subway Signe](https://img.buzzfeed.com/buzzfeed-static/static/2016-02/5/15/campaign_images/webdr13/are-you-a-nyc-subway-expert-2-2072-1454704222-15_dblbig.jpg) [Can You Give Good NYC Subway Directions?](https://www.buzzfeed.com/perpetua/nyc-subway-directions-quiz?utm_term=.nnrwl4jqD#.yhogXqVA9)
 
 ## About Trains and Stuff
 
